@@ -1,1 +1,1 @@
-NEW UPDATE CAME OUT!
+Ninja Legends - Error (Player Tab)
